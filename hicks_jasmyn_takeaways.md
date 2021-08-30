@@ -1,0 +1,4 @@
+- our intstuctors care
+- things seems MUCH more simple the second time around. Don't freak out when things seem impossible at first exposure
+- everyone is fighting down panic. Sometimes the pace is really fast and things don't seem clear, but you'll get it. You're in the same boat as everyone else.
+- Why won't my passwords work??
